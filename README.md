@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @yllkacurri
+- 👀 I’m interested in codding
